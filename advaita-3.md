@@ -4,7 +4,7 @@
 
 (Kāmaḥ, krodhaḥ, lobhaḥ, mohaḥ, madaḥ, mātsaryaḥ.)
 
-All six vices, namely Kāma, krodha, lobha, moha, mada, and mātsarya,  are discussed individually throughout the text in different contexts.
+All six vices, namely Kāma, krodha, lobha, moha, mada, and mātsarya, are six Sanskrit words that represent different negative emotions or vices are discussed individually throughout the text in different contexts.
 
 Here are some verses from the Bhagavad Gita that address these vices:
 
