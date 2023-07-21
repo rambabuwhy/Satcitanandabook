@@ -2,6 +2,10 @@
 
 ## आत्मनस्तु कामया सर्वं प्रियं भवति।
 
+ātmanastu kāmāya sarvaṃ priyaṃ bhavati
+
+
+
 It is not for the sake of all, my dear, that all is loved, but for one's own sake that it is loved.
 
 1. Atmanas (आत्मनः): This is the possessive form of the word "atman," which refers to the self, soul, or innermost essence of a person.
