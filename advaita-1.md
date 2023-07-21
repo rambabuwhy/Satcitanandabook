@@ -1,6 +1,10 @@
-# Advaita-1
+# advaita-1
 
 ## ब्रह्म सत्यं जगन्मिथ्या, जीवो ब्रह्मैव नापरः॥
+
+Brahma Satyam Jagannmitya Jivo Brahmaiva Naparah
+
+
 
 "Brahman is truth, the world is illusion; the individual self is none other than Brahman."
 
