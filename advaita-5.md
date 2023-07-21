@@ -2,6 +2,8 @@
 
 ## अण्ड पिण्ड ब्रह्माण्ड.
 
+anda pinda brahmanda
+
 Here is the breakdown of each term in Devanagari script:
 
 * अण्ड (anda): Cosmic egg
