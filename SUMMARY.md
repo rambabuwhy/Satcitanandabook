@@ -8,5 +8,6 @@
 * [advaita-5](advaita-5.md)
 * [advaita-6](advaita-6.md)
 * [advaita-7](advaita-7.md)
-* [advaita-7](advaita-7-1.md)
+* [advaita-8](advaita-8.md)
 * [advaita-9](advaita-9.md)
+* [advaita-10](advaita-10.md)

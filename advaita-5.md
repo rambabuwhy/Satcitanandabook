@@ -1,22 +1,28 @@
-# advaita-3
+# Advaita-2
 
-## कामः, क्रोधः, लोभः, मोहः, मदः, मात्सर्यः।&#x20;
+## सत्यं ज्ञानं अनन्तं ब्रह्म &#x20;
 
-(Kāmaḥ, krodhaḥ, lobhaḥ, mohaḥ, madaḥ, mātsaryaḥ.)
+Satyam jnanam anantam brahma (Taittiriya Upanishad (2.1.1))
 
-All six vices, namely Kāma, krodha, lobha, moha, mada, and mātsarya, are six Sanskrit words that represent different negative emotions or vices are discussed individually throughout the text in different contexts.
+And the word-by-word breakdown and explains how god looks like
 
-Here are some verses from the Bhagavad Gita that address these vices:
+Satyam: Truth&#x20;
 
-1. Kāma (desire):
-   * Bhagavad Gita 3.37: "The Supreme Personality of Godhead said: It is lust only, Arjuna, which is born of contact with the material mode of passion and later transformed into wrath, and which is the all-devouring, sinful enemy of this world."
-2. Krodha (anger):
-   * Bhagavad Gita 2.63: "From anger, complete delusion arises, and from delusion, bewilderment of memory. When memory is bewildered, intelligence is lost, and when intelligence is lost, one falls down again into the material pool."
-3. Lobha (greed):
-   * Bhagavad Gita 16.21: "There are three gates leading to this hell—lust, anger, and greed. Every sane man should give these up, for they lead to the degradation of the soul."
-4. Moha (delusion):
-   * Bhagavad Gita 16.13: "The demoniac person thinks: 'So much wealth do I have today, and I will gain more according to my schemes. So much is mine now, and it will increase in the future, more and more. He is my enemy, and I have killed him, and my other enemies will also be killed. I am the lord of everything. I am the enjoyer. I am perfect, powerful, and happy. I am the richest man, surrounded by aristocratic relatives. There is none so powerful and happy as I am. I shall perform sacrifices, I shall give some charity, and thus I shall rejoice.' In this way, such persons are deluded by ignorance."
-5. Mada (pride):
-   * Bhagavad Gita 16.18: "Puffed up by his false ego, strength, pride, lust, and anger, the demonic person becomes envious of the Supreme Personality of Godhead, who is situated in his own body and in the bodies of others, and blasphemes against the real religion."
-6. Mātsarya (envy):
-   * Bhagavad Gita 16.19: "Those who are envious and mischievous, who are the lowest among men, are cast by Me into the ocean of material existence, into various demoniac species of life."
+Jnanam: Knowledge&#x20;
+
+Anantam: Infinite&#x20;
+
+Brahma: Ultimate Reality or Brahman
+
+"Satyam jnanam anantam brahma" is a Sanskrit phrase that comes from the Vedas, specifically the Taittiriya Upanishad. It is a profound statement that conveys the nature of ultimate reality or Brahman.
+
+Here's the breakdown of the phrase:
+
+1. Satyam (Truth): Satyam refers to the fundamental truth or reality that underlies the universe. It represents the eternal and unchanging nature of existence. In Hindu philosophy, it is believed that all phenomena are transient and subject to change, but there is an underlying truth that remains constant.
+2. Jnanam (Knowledge): Jnanam signifies the highest knowledge or wisdom that leads to the realization of truth. It is not ordinary knowledge acquired through intellectual pursuits but rather a direct experiential knowledge of the ultimate reality. This knowledge transcends the limitations of the mind and intellect, leading to spiritual enlightenment.
+3. Anantam (Infinite): Anantam denotes the limitless and boundless nature of Brahman. It suggests that the ultimate reality is beyond any finite boundaries, concepts, or limitations. It is not confined by time, space, or any other relative factors.
+4. Brahma (Brahman): Brahma refers to the ultimate reality or the Absolute. It is the supreme, all-pervading essence that permeates everything in the universe. Brahman is considered to be the substratum of all existence and the source from which everything arises. It is beyond any dualities and distinctions, transcending both the manifest and unmanifest aspects of creation.
+
+The phrase "Satyam jnanam anantam brahma" represents the seeker's yearning for the realization of ultimate truth and the understanding of the nature of Brahman. It highlights the importance of direct experiential knowledge and the recognition that the ultimate reality is infinite, unchanging, and beyond the limitations of ordinary perception.
+
+It is worth noting that interpretations and explanations of this text may vary among different philosophical schools and individuals. The depth of its meaning and the significance it holds can be explored through contemplation, meditation, and the study of ancient scriptures and philosophical commentaries.

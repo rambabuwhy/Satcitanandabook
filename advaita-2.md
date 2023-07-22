@@ -1,37 +1,49 @@
-# begin-2
+# Purnam Mantra
 
-## अखण्डमण्डलाकारं व्याप्तं येन चराचरम् ।&#x20;
+## ओं&#x20;
 
-## तत्पदं दर्शितं येन तस्मै श्रीगुरवे नमः ||
+## पूर्णमदः पूर्णमिदं&#x20;
+
+## पूर्णात् पूर्णमुदच्यते।&#x20;
+
+## पूर्णस्य पूर्णमादाय&#x20;
+
+## पूर्णमेवावशिष्यते॥&#x20;
+
+## ओं शान्तिः शान्तिः शान्तिः॥
 
 
 
-Akhanndda-Mannddala-Akaaram Vyaaptam Yena Cara-Acaram |&#x20;
+Om&#x20;
 
-Tat-Padam Darshitam Yena Tasmai Shrii-Gurave Namah ||
+Puurnnam-Adah Puurnnam-Idam&#x20;
+
+Puurnnaat-Purnnam-Udacyate&#x20;
+
+Puurnnashya Puurnnam-Aadaaya&#x20;
+
+Puurnnam-Eva-Avashissyate&#x20;
+
+|| Om Shaantih Shaantih Shaantih ||
 
 
 
-अखण्डमण्डलाकारं (Akhanda-maṇḍalākāram) - Akhanda means "indivisible" or "unbroken," and maṇḍala means "circle" or "sphere." So, Akhanda-maṇḍalākāram refers to something that has an all-pervading or encompassing form.
+Om,&#x20;
 
-व्याप्तं (Vyāptam) - Vyāptam means "spread" or "pervaded." It indicates that the aforementioned form is all-encompassing and extends throughout.
+That is Full, This is Full,
 
-येन (Yena) - Yena means "by whom" or "by which." It is used to attribute the characteristics of the previous two words to a specific entity.
+&#x20;From Fullness comes Fullness.&#x20;
 
-चराचरम् (Charācaram) - Chara refers to "moving" or "animate" beings, while acara refers to "non-moving" or "inanimate" objects. So, charācaram signifies the entire universe, including both living and non-living entities.
+Taking Fullness from Fullness,
 
-तत्पदं (Tatpadam) - Tat means "that," and padam means "state" or "condition." Tatpadam refers to the state or condition being described in the previous phrase.
+Fullness alone remains.
 
-दर्शितं (Darśitam) - Darśitam comes from the verb darś, which means "to show" or "to reveal." Here, it means "that which has been shown" or "that which has been revealed."
+Om, Peace, Peace, Peace.
 
-येन (Yena) - Same as before, meaning "by whom" or "by which."
 
-तस्मै (Tasmai) - Tasmai is a pronoun that means "to him" or "to that." It refers to the person or entity being honored in this verse.
 
-श्रीगुरवे (Śrīgurave) - Śrī means "auspicious" or "holy," and gurave means "to the guru" or "to the teacher." It is a term of respect used to address a revered teacher or spiritual guide.
+The chant conveys the concept of wholeness and completeness. It emphasizes that the ultimate reality or the divine essence is infinite and complete. The repetition of "Purnam" (Fullness) signifies that everything is already whole and perfect. It suggests that when we perceive the true nature of existence, we realize that there is no lack or incompleteness.
 
-नमः (Namaḥ) - Namaḥ means "salutations" or "obeisance." It is an expression of reverence and submission.
+The final part of the chant, "Om Shaantih Shaantih Shaantih," invokes peace and tranquility. The repetition of "Shaanti" (Peace) signifies a desire for inner peace, peace in the surroundings, and universal peace.
 
-So, the overall meaning of the verse can be understood as:
-
-"Salutations to that holy teacher who has revealed the all-pervading and encompassing form, by whom the entire universe of moving and non-moving entities has been shown."
+Overall, the Purnam Mantra encourages contemplation on the wholeness and perfection of existence and promotes a sense of inner peace. It is often recited at the beginning or end of spiritual rituals, prayers, or meditation sessions.

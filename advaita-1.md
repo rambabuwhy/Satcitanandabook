@@ -1,49 +1,11 @@
-# Purnam Mantra
+# advaita-1
 
-## ओं&#x20;
+## सच्चिदानन्द
 
-## पूर्णमदः पूर्णमिदं&#x20;
+Satcitananda
 
-## पूर्णात् पूर्णमुदच्यते।&#x20;
+1. Sat (सत्) - Truth or Existence: Refers to the eternal and unchanging reality that underlies everything in the universe.
+2. Cit (चित्) - Consciousness or Knowledge: Denotes the awareness or consciousness that illuminates all experiences and allows us to perceive and understand the world.
+3. Ananda (आनंद) - Bliss or Happiness: Signifies the supreme joy or bliss that arises from the realization of the true nature of reality and the self.
 
-## पूर्णस्य पूर्णमादाय&#x20;
-
-## पूर्णमेवावशिष्यते॥&#x20;
-
-## ओं शान्तिः शान्तिः शान्तिः॥
-
-
-
-Om&#x20;
-
-Puurnnam-Adah Puurnnam-Idam&#x20;
-
-Puurnnaat-Purnnam-Udacyate&#x20;
-
-Puurnnashya Puurnnam-Aadaaya&#x20;
-
-Puurnnam-Eva-Avashissyate&#x20;
-
-|| Om Shaantih Shaantih Shaantih ||
-
-
-
-Om,&#x20;
-
-That is Full, This is Full,
-
-&#x20;From Fullness comes Fullness.&#x20;
-
-Taking Fullness from Fullness,
-
-Fullness alone remains.
-
-Om, Peace, Peace, Peace.
-
-
-
-The chant conveys the concept of wholeness and completeness. It emphasizes that the ultimate reality or the divine essence is infinite and complete. The repetition of "Purnam" (Fullness) signifies that everything is already whole and perfect. It suggests that when we perceive the true nature of existence, we realize that there is no lack or incompleteness.
-
-The final part of the chant, "Om Shaantih Shaantih Shaantih," invokes peace and tranquility. The repetition of "Shaanti" (Peace) signifies a desire for inner peace, peace in the surroundings, and universal peace.
-
-Overall, the Purnam Mantra encourages contemplation on the wholeness and perfection of existence and promotes a sense of inner peace. It is often recited at the beginning or end of spiritual rituals, prayers, or meditation sessions.
+Together, "Satcitananda" represents the idea of an ultimate state of being, where one realizes the oneness of existence, experiences pure consciousness, and transcends all limitations and suffering, attaining a state of absolute bliss and happiness.
