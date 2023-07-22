@@ -1,28 +1,37 @@
-# Advaita-2
+# begin-2
 
-## सत्यं ज्ञानं अनन्तं ब्रह्म &#x20;
+## अखण्डमण्डलाकारं व्याप्तं येन चराचरम् ।&#x20;
 
-Satyam jnanam anantam brahma (Taittiriya Upanishad (2.1.1))
+## तत्पदं दर्शितं येन तस्मै श्रीगुरवे नमः ||
 
-And the word-by-word breakdown and explains how god looks like
 
-Satyam: Truth&#x20;
 
-Jnanam: Knowledge&#x20;
+Akhanndda-Mannddala-Akaaram Vyaaptam Yena Cara-Acaram |&#x20;
 
-Anantam: Infinite&#x20;
+Tat-Padam Darshitam Yena Tasmai Shrii-Gurave Namah ||
 
-Brahma: Ultimate Reality or Brahman
 
-"Satyam jnanam anantam brahma" is a Sanskrit phrase that comes from the Vedas, specifically the Taittiriya Upanishad. It is a profound statement that conveys the nature of ultimate reality or Brahman.
 
-Here's the breakdown of the phrase:
+अखण्डमण्डलाकारं (Akhanda-maṇḍalākāram) - Akhanda means "indivisible" or "unbroken," and maṇḍala means "circle" or "sphere." So, Akhanda-maṇḍalākāram refers to something that has an all-pervading or encompassing form.
 
-1. Satyam (Truth): Satyam refers to the fundamental truth or reality that underlies the universe. It represents the eternal and unchanging nature of existence. In Hindu philosophy, it is believed that all phenomena are transient and subject to change, but there is an underlying truth that remains constant.
-2. Jnanam (Knowledge): Jnanam signifies the highest knowledge or wisdom that leads to the realization of truth. It is not ordinary knowledge acquired through intellectual pursuits but rather a direct experiential knowledge of the ultimate reality. This knowledge transcends the limitations of the mind and intellect, leading to spiritual enlightenment.
-3. Anantam (Infinite): Anantam denotes the limitless and boundless nature of Brahman. It suggests that the ultimate reality is beyond any finite boundaries, concepts, or limitations. It is not confined by time, space, or any other relative factors.
-4. Brahma (Brahman): Brahma refers to the ultimate reality or the Absolute. It is the supreme, all-pervading essence that permeates everything in the universe. Brahman is considered to be the substratum of all existence and the source from which everything arises. It is beyond any dualities and distinctions, transcending both the manifest and unmanifest aspects of creation.
+व्याप्तं (Vyāptam) - Vyāptam means "spread" or "pervaded." It indicates that the aforementioned form is all-encompassing and extends throughout.
 
-The phrase "Satyam jnanam anantam brahma" represents the seeker's yearning for the realization of ultimate truth and the understanding of the nature of Brahman. It highlights the importance of direct experiential knowledge and the recognition that the ultimate reality is infinite, unchanging, and beyond the limitations of ordinary perception.
+येन (Yena) - Yena means "by whom" or "by which." It is used to attribute the characteristics of the previous two words to a specific entity.
 
-It is worth noting that interpretations and explanations of this text may vary among different philosophical schools and individuals. The depth of its meaning and the significance it holds can be explored through contemplation, meditation, and the study of ancient scriptures and philosophical commentaries.
+चराचरम् (Charācaram) - Chara refers to "moving" or "animate" beings, while acara refers to "non-moving" or "inanimate" objects. So, charācaram signifies the entire universe, including both living and non-living entities.
+
+तत्पदं (Tatpadam) - Tat means "that," and padam means "state" or "condition." Tatpadam refers to the state or condition being described in the previous phrase.
+
+दर्शितं (Darśitam) - Darśitam comes from the verb darś, which means "to show" or "to reveal." Here, it means "that which has been shown" or "that which has been revealed."
+
+येन (Yena) - Same as before, meaning "by whom" or "by which."
+
+तस्मै (Tasmai) - Tasmai is a pronoun that means "to him" or "to that." It refers to the person or entity being honored in this verse.
+
+श्रीगुरवे (Śrīgurave) - Śrī means "auspicious" or "holy," and gurave means "to the guru" or "to the teacher." It is a term of respect used to address a revered teacher or spiritual guide.
+
+नमः (Namaḥ) - Namaḥ means "salutations" or "obeisance." It is an expression of reverence and submission.
+
+So, the overall meaning of the verse can be understood as:
+
+"Salutations to that holy teacher who has revealed the all-pervading and encompassing form, by whom the entire universe of moving and non-moving entities has been shown."

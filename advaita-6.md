@@ -1,16 +1,33 @@
-# advaita-6
+# advaita-4
 
-## आत्मनस्तु कामया सर्वं प्रियं भवति।
+## यथा ह्येकेन मृण्मयेन घटेन नानारूपानि घटाभासानि तथात्मानं नानारूपं पश्यति।
 
-ātmanastu kāmāya sarvaṃ priyaṃ bhavati
+yathā hyēkēna mr̥ṇmayēna ghaṭēna nānārūpāni ghaṭābhāsāni tathā ātmānaṁ nānārūpaṁ nānārūpaṁ
 
 
 
-It is not for the sake of all, my dear, that all is loved, but for one's own sake that it is loved.
+Just as a single clay pot appears as different forms of pots, similarly, one perceives the self as having various forms.
 
-1. Atmanas (आत्मनः): This is the possessive form of the word "atman," which refers to the self, soul, or innermost essence of a person.
-2. Tu (तु): This is a conjunction that is often translated as "but" or "however."
-3. Kamaya (कामया): This is the feminine form of the noun "kama," which generally translates to "desire" or "wish."
-4. Sarvam (सर्वम्): This is a pronoun that translates to "everything" or "all."
-5. Priyam (प्रियम्): This is an adjective that means "dear" or "beloved."
-6. Bhavati (भवति): This is a present tense verb that translates to "becomes" or "is."
+yathā - Just as&#x20;
+
+hyēkēna - through one&#x20;
+
+mr̥ṇmayēna - made of clay&#x20;
+
+ghaṭēna - pot&#x20;
+
+nānārūpāni - various forms&#x20;
+
+ghaṭābhāsāni - appearances of pots&#x20;
+
+tathā - in the same way&#x20;
+
+ātmānaṁ - the Self&#x20;
+
+nānārūpaṁ - in various forms
+
+nānārūpaṁ- perceives
+
+It suggests that just as a single lump of clay can be molded into different pots, the true self (Atman) can take on various temporary forms (physical bodies) in the material world. The underlying essence remains the same, but the external appearances vary. It emphasizes the idea of the eternal and unchanging nature of the self beyond its transient manifestations.
+
+"Those who see the Supreme Lord residing equally in all beings, who see the imperishable amidst the perishable, and who see the self-existent Supreme Lord as the same within everyone, they attain the highest goal and are established in perfect knowledge."

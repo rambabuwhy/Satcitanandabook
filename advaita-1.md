@@ -1,17 +1,49 @@
-# advaita-1
+# Purnam Mantra
 
-## ब्रह्म सत्यं जगन्मिथ्या, जीवो ब्रह्मैव नापरः॥
+## ओं&#x20;
 
-Brahma Satyam Jagannmitya Jivo Brahmaiva Naparah
+## पूर्णमदः पूर्णमिदं&#x20;
+
+## पूर्णात् पूर्णमुदच्यते।&#x20;
+
+## पूर्णस्य पूर्णमादाय&#x20;
+
+## पूर्णमेवावशिष्यते॥&#x20;
+
+## ओं शान्तिः शान्तिः शान्तिः॥
 
 
 
-"Brahman is truth, the world is illusion; the individual self is none other than Brahman."
+Om&#x20;
 
-Here is the breakdown and explanation of each part:
+Puurnnam-Adah Puurnnam-Idam&#x20;
 
-1. ब्रह्म सत्यं (Brahma Satyam): Brahman is truth or reality. "ब्रह्म" (Brahma) refers to the supreme cosmic power or ultimate reality, and "सत्यं" (Satyam) means truth.
-2. जगन्मिथ्या (Jagannmitya): The world is an illusion or false. "जगन्" (Jagann) denotes the world or universe, and "मिथ्या" (mitya) indicates falsehood or illusion.
-3. जीवो ब्रह्मैव नापरः (Jivo Brahmaiva Naparah): The individual self is none other than Brahman. "जीवो" (Jivo) refers to the individual self or soul, "ब्रह्मैव" (Brahmaiva) means only Brahman, and "नापरः" (Naparah) signifies none other than or not different from.
+Puurnnaat-Purnnam-Udacyate&#x20;
 
-Overall, this Sanskrit phrase encapsulates the Vedantic philosophy of Advaita (non-dualism), emphasizing the unity of the individual self (Jiva) with the ultimate reality (Brahman). It states that Brahman alone is the ultimate truth, while the world is an illusory manifestation. The phrase asserts the essential non-duality between the individual self and Brahman, implying that the individual self is not separate from Brahman but is essentially identical to it.
+Puurnnashya Puurnnam-Aadaaya&#x20;
+
+Puurnnam-Eva-Avashissyate&#x20;
+
+|| Om Shaantih Shaantih Shaantih ||
+
+
+
+Om,&#x20;
+
+That is Full, This is Full,
+
+&#x20;From Fullness comes Fullness.&#x20;
+
+Taking Fullness from Fullness,
+
+Fullness alone remains.
+
+Om, Peace, Peace, Peace.
+
+
+
+The chant conveys the concept of wholeness and completeness. It emphasizes that the ultimate reality or the divine essence is infinite and complete. The repetition of "Purnam" (Fullness) signifies that everything is already whole and perfect. It suggests that when we perceive the true nature of existence, we realize that there is no lack or incompleteness.
+
+The final part of the chant, "Om Shaantih Shaantih Shaantih," invokes peace and tranquility. The repetition of "Shaanti" (Peace) signifies a desire for inner peace, peace in the surroundings, and universal peace.
+
+Overall, the Purnam Mantra encourages contemplation on the wholeness and perfection of existence and promotes a sense of inner peace. It is often recited at the beginning or end of spiritual rituals, prayers, or meditation sessions.
