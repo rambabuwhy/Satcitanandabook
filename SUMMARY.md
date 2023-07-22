@@ -9,3 +9,4 @@
 * [advaita-4](advaita-4.md)
 * [advaita-5](advaita-5.md)
 * [advaita-6](advaita-6.md)
+* [advaita-6](advaita-6-1.md)
