@@ -13,3 +13,4 @@
 * [advaita-10](advaita-10.md)
 * [advaita-11](advaita-11.md)
 * [advaita-12](advaita-12.md)
+* [advaita-13](advaita-13.md)
